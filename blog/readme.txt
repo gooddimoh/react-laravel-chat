@@ -1,0 +1,1 @@
+https://sleepingowladmin.ru/docs/installation
